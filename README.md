@@ -1,1 +1,1 @@
-👋 Hi, I’m @jaychhuchharsapiens
+👋 Hi, I’m Jay Chhuchhar (@jaychhuchharsapiens).
